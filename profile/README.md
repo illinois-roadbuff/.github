@@ -6,5 +6,5 @@
 
 ### Wikimedia Commons: [https://commons.wikimedia.org/wiki/User:Illinois-Roadbuff](https://commons.wikimedia.org/wiki/Special:ListFiles?limit=50&user=Illinois-Roadbuff)
 
-Should you have any inquiries contact me via [Discord](https://discord.gg/sd4XfAqNF9) or via email [<illinois_roadbuff@proton.me>](mailto:illinois_roadbuff@proton.me).
+Should you have any inquiries contact me via [Discord](https://discord.gg/sd4XfAqNF9) or via email [illinois_roadbuff....at....proton.me]().
 
